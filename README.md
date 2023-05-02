@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HimaniSrivastav
+- 👋 Hi, I’m @HimaniSrivastav (Himani Srivastava)
 - 👀 I’m interested in learning about new stuff and gaining experience.
 - 🌱 I’m currently pursuing my btech (ece branch).
 
