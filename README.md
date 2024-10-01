@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **himgzp20@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vG86UVFpkoIlDqPEA0yglqfyNLZhdEqE/view](https://drive.google.com/file/d/1vG86UVFpkoIlDqPEA0yglqfyNLZhdEqE/view)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1vG86UVFpkoIlDqPEA0yglqfyNLZhdEqE/view](https://drive.google.com/drive/folders/1IoL5DjZ9jKvg2-p90pBuaqXCgKZHVajy?usp=drive_link)]([https://drive.google.com/file/d/1vG86UVFpkoIlDqPEA0yglqfyNLZhdEqE/view](https://drive.google.com/drive/folders/1IoL5DjZ9jKvg2-p90pBuaqXCgKZHVajy?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
